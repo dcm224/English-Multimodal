@@ -19,5 +19,7 @@ On the block that you and your parents have lived on for years
 Wipe away your tears
 That’s nothing but music to their ears
 
+
+
 This is a playlist I created of songs that I love that are exemplary of Hip Hop music throughout the years being a form of expression for those who have been oppressed in American society. 
 https://open.spotify.com/playlist/0p7061TJlXxa31jxtemSSw?si=53RODXDASEGAnstmeUD7vQ
