@@ -1,5 +1,5 @@
 # English-Multimodal
-[title]The New York Times
+The New York Times
 
 I read the paper the other day, it told me a secret
 It said people are being kicked from their homes for convenience
